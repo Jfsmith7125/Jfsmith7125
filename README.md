@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jfsmith7125
-I'm a student in my first year of college. My focus is on computer programming. 
+I'm a student in my first year of college. My major is computer science. 
 - 📫 How to reach me ...jf.smith7789@gmail.com@gmail.com
 
 
