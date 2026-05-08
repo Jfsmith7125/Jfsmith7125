@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jfsmith7125
-I'm a student in my second year of college. My major is computer science. 
+I'm an engineering student at Springfield Technical Community College.
 - 📫 How to reach me: jf.smith7789@gmail.com
 
 
